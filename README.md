@@ -1,4 +1,5 @@
 Oi, eu sou a Amanda Mantuan💗
+estudante do alura :)
 @00001099076419sp@al.educacao.sp.gov.br
 
 ![](https://i.etsystatic.com/37539328/r/il/0fe894/5786543532/il_fullxfull.5786543532_sv2q.jpg)
